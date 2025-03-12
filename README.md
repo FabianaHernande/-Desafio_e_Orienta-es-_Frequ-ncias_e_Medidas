@@ -1,1 +1,1 @@
-# -Desafio_e_Orienta-es-_Frequ-ncias_e_Medidas
+# -Desafio_e_Orientações-Frequências_e_Medidas
